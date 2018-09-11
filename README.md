@@ -1,0 +1,2 @@
+# Wiranto
+tidak ada
